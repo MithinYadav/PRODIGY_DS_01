@@ -14,4 +14,5 @@ Contact Information
 For any inquiries or collaborations, feel free to reach out:
 
 Email: mithiny5@gmail.com
+
 LinkedIn:www.linkedin.com/in/guntuboina-mithin-57245737a
